@@ -1,0 +1,4 @@
+- 👋 Hi, I’m SilvaEevee
+- 👀 I’m interested in games, computers, networking, biking and swimming
+- 🌱 I’m currently learning cybersecurity and networking
+- 💞️ I KNOW WHERE YOU LIVE.
